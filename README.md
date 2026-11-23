@@ -1,3 +1,3 @@
 # Six Words, One Story
 
-She sold the piano. Kept playing.
+She wore white. He didn't show.
